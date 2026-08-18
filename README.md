@@ -1,4 +1,4 @@
-<br>****World Brand Association
+****World Brand Association
 <br>世界品牌协会****
 <br>[www.wbao.org](https://www.wbao.org)
 <br>
