@@ -1,5 +1,3 @@
-Welcome to the WBA wiki!
-<br>
 <br>****World Brand Association
 <br>世界品牌协会****
 <br>[www.wbao.org](https://www.wbao.org)
